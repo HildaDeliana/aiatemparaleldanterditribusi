@@ -1,1 +1,1 @@
-# aiatemparaleldanterditribusi
+# sistemparaleldanterditribusi
